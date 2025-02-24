@@ -1,1 +1,3 @@
 # Tyon
+It's peaceful here 
+Against his father's wishes, Sam returns to Clu's territory to find Zuse, a program who can provide safe passage to the Portal. At the End of Line Club, the owner reveals himself to be Zuse, then betrays Sam to Clu's guards. In the resulting fight, Kevin rescues his son, but Quorra is injured and Zuse gains possession of Flynn's disc. Zuse attempts to bargain with Clu over the disc, but Clu instead destroys the club along with Zuse. Kevin and Sam stow away aboard a "Solar Sailer" transport program, where Flynn restores Quorra and reveals her to be the last surviving ISO.
